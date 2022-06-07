@@ -1,1 +1,1 @@
-# rsschool-cv
+https://rppurple.github.io/rsschool-cv/
